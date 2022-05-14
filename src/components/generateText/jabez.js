@@ -236,6 +236,26 @@ When 'er 'adna got owt else, 'er'd put some currans or reesons in, but when thee
 One o' th'little lads used put me off a bit though: Ey awwees seymed fer 'ave a couple o' candles runnin' dine 'is nose on ter 'is puddin'.
 Mind thee, th'little chap couldna 'elp it, ey 'ad one o' them everlastin' cowds in th'yed.
 Ey'd never 'ad a proper 'enkerchief an' 'is gansy-sleyve were a bit rough on is little nose.
-But it was rattlin' good breadpuddin'.`;
+But it was rattlin' good breadpuddin'.
+That's a geeme wot's stood th'test o' tarme.
+Wey used scrat a cirtle on th'grind abite foer foot across, an' us lads 'ud put a scoer' or moer taws in it apeyce.
+Ther'd bey threy or foer 'undred awgether in this cirtle.
+Then wey'd draw a mark abite 30 yards awee, an' slat this iron pitcher at th'taws in us turn.
+Th'idea was fer drop it just in front o' th'cirtle so's it skidded inter theyse taws an' knocked 'em ite.
+They couldst 'ave aw them wot went iteside th'cirtle.
+Mind thee, a lot on 'em got brok, 'specially if thee 'appenst fer ower- pitch it an' drop reyght on top on 'em.
+It peed thee fer stand well back when somebody else was pitchin' — some on 'em slat a bit weyld an' that theer iron pitcher coulda takken thee yed off thee showders.
+Ar've offen wondered if peggy wonna th' meekin' o' some o' th'good cricketers weyn 'ad in th'village.
+An ar'll tell thee another geeme wot thee dustna sey pleed nar-a-rees — bodger!
+Ee! Ar've welly brok me back a tarme or two pleein' bodger.
+Foer lads on each seyd were abite th'best number, with th'fattest 'un fer th'bally-bunter.
+Th'bally-bunter stood with 'is back ter a wo' an' one o' th'lads bent dine with is yed in this bally-bunter's bally.
+Then th'other two bent dine an' cushioned ther yeds in th'backside o' th'lad in front on 'em.
+When thee'd aw gotten dine th'other foer lads wot were goin' fogger 'ad fer on ter theyse threy lads' backs.
+Th'fost lad wot jumped 'ad fer try an' clear th'fost two backs an'land on th'third un.
+If ey didna it meant as ther was ony one back left fer aw th'other threy lads fer jump on to.
+It was now joke 'avin' threy 'efty lads on thee back, an' aw on 'em fangin' 'owd on thee some-wheer so's thee wouldna fo' off.
+Thee 'ad fer stee theer withite touchin' th'grind 'till one on 'em 'ad kynted two, foer, six, eight, ten, bodger!
+Ar'll tell thee wot sirree, some o'th'lads weyn gotten nar-a-dees wouldna get inter ser much trouble if thee 'ad some o' th' stuffin' knocked ite on 'em with a two-three geemes o' peggy or bodger.`;
 
 export default jabez;
