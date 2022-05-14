@@ -174,6 +174,68 @@ It musta bin dine fer donkey's yeers but it 'ud still 'owd weyter.
 Ther was offen a frog or two swimmin' arind, but ar think lads musta put 'em in 'cos folks were very perticler abite coverin' th'well up.
 In them dees, cleyn weyter was only used fer drinkin' an' cookin' an' such-larke.
 Thee used reen-weyter or pond-weyter fer most everythin' else.
-Ar'll tell thee wot sirree, nar weyn aw gotten taps in th'ice ar never grumble abite peein' me weyter rate.`;
+Ar'll tell thee wot sirree, nar weyn aw gotten taps in th'ice ar never grumble abite peein' me weyter rate.
+Tt's a wonder ter mey as some o' them colliers didna 'ave ther 'ises burnt dine with aw them close rind th'fire.
+Mind thee, one or two on 'em neyly managed it.
+Ar remember one on 'em tellin' me abite th'tarme when 'is missus wok up in th'middle o' th'neyght an' said: 'Weeke up Tum ar can smell burnin'.'
+Ey towd 'er get of sleyp with 'er, but 'er wouldna rest
+Er werritted that much ey 'ad fer get up.
+When ey oppened th'stair-foot doer th'kitchen was full o' smoke!
+Ey shyted: 'Nell! Theyst better come dine - me trysers are on fire.'
+Er said: 'Oh my lors, Costna dite 'em?'
+Tum shyted back: 'Ar've dited em but ar shanna bey eeble go work in 'em — thers oles in th'legs big enough get thee yed through.'
+When 'er come dine 'er said ey 'adna got an moer fer go in.
+Ther was ony 'is best blue an' 'is flannels, an' 'er wonner lettin' 'im go in them.
+So 'er funt a peyce o' cloth ite 'o th'rag-bag an' petched 'em fer 'im.
+Then 'er said: 'Them'll 'ave do. Ar conna sey wot ar'm doin' withite me glasses an' ar'm blessed if ar con think wheer ar've put 'em. Theyt 'ave manage with 'em 'till ar con get thee a' pair o' mowl-skins ite o' th'maxim.'
+So thee went back bed an' th'next thing 'er remembered was Tum shytin': 'Nell! Come dine quick. Ar'm in a reyght' mess — ar've lost th'use o' me leg!'
+'Er said: 'Theyst wot? Wotever's up with thee nar?'
+So ey shyted back. 'Well, eether ar'm paralysed from the weest dine or else theyst meede'a reyght owd cobble' o' theyse trysers. Ar conna move.'
+Dust know wot 'er'd done, sirree?
+Some road or other er'd stitched th'legs 'gether betweyn th'kneys.
+'Ee!' ey said.  'They 'adst me worried fer a bit. Next tarme thee mendest me trysers in th'middle o' th'neyght meeke sure fer put 'thee specs on. Ar was beginnin' fer think theydst 'ave push me work in th'wheyl-barrer.'
+id as we watched one of the early combine-harvesters at work.
+Ar reckon every dog 'as its dee.
+At one tarme th'corn were awwees cut wi' a sickle or a scythe.
+Then th'reypin' macheynes come, an' then th'beynders, an' nar this greet lummockin' contraption.
+Thee cost 'ardly credit as when th'childer livin' nar get owd thee'll luk back an' tell their childer wot a grand seyght it was fer wetch this greet thing go through a feyld spewin' ite corn an' straw.
+Ar wonder wot some o' th'owd uns 'ud think abite it?
+In them dees, two acres o' wuts was a good dee's work fer a mon wi' a scythe.
+An' then it 'ad fer bey put up in sheyves an' stooked.
+Th'owd folks used reckon fer leyve th'stooks standin' on th'stubble 'till it 'ad 'eerd th'church bells ring on threy Sundees.
+Then it 'ad fer bey carted an' stacked fer weet fer th'thresher come rind.
+Ar'll tell thee wot though, ar used enjoy beyin' in th'arvest feyld in th'owd dees.
+Mind thee, it was 'ard work an' th'dees were lung an' th'pee were poer.
+But some-road or other folks seymed fer bey moer contented.
+Ar'm aw in favour o' takkin' th'ard work ite o' a job providin' a mon con get some satisfaction ite o' doin' wot's left.
+As ar luk at it, a mon's got fer bey comfortable with 'imsel', if thee gets me meynin'.
+An' if ey dunna get some satisfaction ite o' 'is job it's as sure as God meede little apple thers trouble brewin' fer somebody somewheer. 
+Theyt sey folks at th'arvest festival wot thee wutna sey at any other service bar a buryin' or a marryin'.
+It inna aw that lung ago since a good 'arvest meant th' difference betweyn a full bally an' a empty 'un in th'winter.
+Thers bin a two-three cheenges since then but a mon still conna do withite 'is snappin'.
+Wey con do some clever things but ar anna 'eerd tell abite a mon meekin' a bleede o' gress yet, let alone a grain o' corn.
+Ar reckon that's th'top an' bottom on it.
+Ar used larke sey a lad tackle a good peyce.
+Them peyces were as thick as doer-steps.
+It was now use 'eksin' 'im fer seeve thee th'crusses though - ey eat them fost. 
+An' th'sparrers didna get very fat on th'crumbs eether.
+Ar think ar towd thee as when ar was a bit of a lad ar used go rind with th'butcher-mon in 'is pony an' trap.
+Ther was one thing wot puzzled me fer a lung tarme — th'poerest family in th'village 'ad th'biggest parcel o' meyt.
+Dust know wot it was, sirree? A greet big lump o' udder, an' thee 'ad it neyly every wik-end.
+Ar didna fancy it mesel' but ar reckon it was eether that or nothin' fer th'poer souls.
+Another thing that family used 'ave a lot on was breadpuddin'.
+Ther musta bin seven or eight childer at th'tarme ar'm speykin' abite. 
+Ar could never keyp kynt o' them childer — ther awwees seymed fer bey another un since th'last kynt.
+Anyroad, 'er used meeke this puddin' in a big jowl.
+Ar 'ad many a lot on it.
+Ar used plee with some o' theyse childer an' when thee were 'avin' bread-puddin' fer ther dinners thee'd eks me fer 'ave some.
+Ther was nowbody could meeke bread-puddin' larke that woman.
+Th'top on it 'ud bey neyce an' crisp with some bryn sugar on it.
+'Er put aw sorts o' things in it - a bit o' rhubub or a two-three goose-gogs, or some wind-blown apples, or black-berries, or owt wot was in seyson.
+When 'er 'adna got owt else, 'er'd put some currans or reesons in, but when thee funst one thee 'adst fer shyte 'oo-ray 'cos ther'd ony bey a 'andful on 'em in that big jowl.
+One o' th'little lads used put me off a bit though: Ey awwees seymed fer 'ave a couple o' candles runnin' dine 'is nose on ter 'is puddin'.
+Mind thee, th'little chap couldna 'elp it, ey 'ad one o' them everlastin' cowds in th'yed.
+Ey'd never 'ad a proper 'enkerchief an' 'is gansy-sleyve were a bit rough on is little nose.
+But it was rattlin' good breadpuddin'.`;
 
 export default jabez;
