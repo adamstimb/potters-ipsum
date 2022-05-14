@@ -8,7 +8,7 @@ export default function NavbarTop() {
     return (
         <Navbar bg="light" expand="lg">
             <Container>
-                <Navbar.Brand href="#home">
+                <Navbar.Brand href="/">
                     <img src={Branding} alt="IntSol" width="140px" />
                     Potters Ipsum
                 </Navbar.Brand>
