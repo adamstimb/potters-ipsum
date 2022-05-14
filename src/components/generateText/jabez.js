@@ -148,6 +148,32 @@ Mind thee, a lot on 'em were drawin' coal 'till th'last minute.
 Two on 'em 'ad a shaft abite 20 foot deyp an' thee left it too leete fer fill th'ole in.
 So thee put some branches across top o' th'ole an' covered em with clods an' threw a bit o' dirt on top.
 This inspector-mon were bit suspicious abite this big pile o' dirt wot thee 'adna put back.
-When ey eksed 'em abite it one o' th'owd miners said: 'Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in.'`;
+When ey eksed 'em abite it one o' th'owd miners said: 'Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in.'
+ter on th'end o' thee arms, theydst got abite as much as thee
+When theedst gotten a couple o' two-gallon buckets o' couldst manage.
+Mind thee, ar awwees reckoned as two buckets on a 'oop were better than maulin' with 'em one at a tarme — thee wast moer balanced, larke.
+But it didna 'afe give thee fingers wot fer on a cowd winter's mornin'!
+Ther was neyly awwees a bit o' 'oss-plee goin' on dine th'wood-well.
+One o' th'tricks thee used plee on thee was fer lee 'owd o' one o' th'buckets o' weyter an' pull thee rind an' rind withit.
+Ther was nowt much thee couldst do abite it 'cept go rind larke a top inside th'oop.
+Theyse two buckets welly pulled thee arms ite o' ther sockets.
+Dust know wot it used put me in mind on? - them steym guvnor things wot thee 'ad on th'weyndin' injin at th'pit.
+If thee putst thee buckets dine afoer theetst stopped spinnin' aw th' weyter tipped ite, an' then thee 'adst go aw th'wee back ter th'well fer some moer.
+After a spell o' drey weather th'weyter ony dribbled ite o' this spring an' it used tak many a wheyle fer fill a bucket.
+Them as 'ad proper wells were best off.
+Most on 'em were in gardins, but ar remember two wot were inside th'ice — under th'scullery floer.
+Ther was a knack, thee knowst, ter gettin' weyter ite o' theyse wells.
+Thee 'adst fer drop thee bucket in gentle so's thee didstna churn up th'muck at th'bottom.
+Then thee givst th'rope a flick so's th'bucket tipped ower on its side.
+Some o' theyse wells were a good depth, an' thee wonna cleyned aw that offen.
+Theydst bey surprised at some o' th' things wot were funt dine 'em.
+Owd 'ats an' shoes, clee-pipes an' tins 0' bacca, wetches, lumps o' scrap-iron, an' nar an' aggen a bit o' money.
+Course ther were awwees a bucket or two at th'bottom, an' a two-three lenths o' owd rope.
+Ar remember seyin' an owd wooden bucket wot 'ad come ite o' a well.
+It musta bin dine fer donkey's yeers but it 'ud still 'owd weyter.
+Ther was offen a frog or two swimmin' arind, but ar think lads musta put 'em in 'cos folks were very perticler abite coverin' th'well up.
+In them dees, cleyn weyter was only used fer drinkin' an' cookin' an' such-larke.
+Thee used reen-weyter or pond-weyter fer most everythin' else.
+Ar'll tell thee wot sirree, nar weyn aw gotten taps in th'ice ar never grumble abite peein' me weyter rate.`;
 
 export default jabez;
