@@ -109,6 +109,45 @@ Ar soon funt ite as owd Daniel 'adna much use fer roads an' paths unless thee 'a
 If thee wonna, ey just cut straight across th'feylds.
 It 'ad bin a leete harvest an' there were a lot o' corn still weetin' fer bey carted.
 Owd Daniel lukked at it an'said: 'There's one hymn wey shanna bey 'avin' terdee.
-Wey conna sing 'All is safely gathered in' withite tellin' lies, con we?`;
+Wey conna sing 'All is safely gathered in' withite tellin' lies, con we?
+Wey got ter this farm abite one o'clock.
+Ar've never seyn ser much stuff on a dinner-teeble eether befoer or since.
+Ther was enough fer feyd an army!
+Ar was that famished ar 'ad me kneyfe an' foke at th'ready afoer owd Daniel 'ad finished th'grace.
+Ar didna 'ear much o' 'is sermon in th'afternoon - ar was full ter bostin' an' ar think ar musta dozed off.
+y. Th'farmer's weyfe thowght ther was summat up with me.
+Owd Daniel did it justice though, an' ey give 'em a good threy-quarters of an 'our sermon at neyght.
+Dust know, ar con still remember 'is text — it was ite o' the' Owd Testament: 'Thou shalt not wholly reap the corners of thy fields, neither shalt thou gather the gleanings of thy harvest — thou shalt leave them for the poor and the stranger.'
+Th'farmer would 'ave us goin' back ter th'farm fer some supper.
+Theyse farmers dunna 'afe get through some snappin'!
+Wey 'ad cheyse, pittled damsons an' wom-beeked bread.
+It was dark be this tarme an' wey'd got a couple o' 'ours walkin' fer do.
+Anyroad, th'farmer said ey'd get th'pony an' trap ite fer tak us dine th'leene as fer as th'meen road.
+Ar thowght th'farmer 'ud bey comin' with us, but ey said: 'When 'ee get ter th'meen road just turn th'pony rind an' start 'im back wom - ey'll bey awreyght.'
+Wey stood an' listened fer a bit ter th'pony trottin' back up th'leene an' then owd Daniel struck off across th'feylds aggen.
+Th'owd feller 'ad got bey up at 5 0'clock in th'mornin' fer go dine th'pit.
+Ar reckon somebody ought ter 'ave given 'im a medal.
+Come fer think on it though, p'raps SOMEBODY did!
+Ther were little pits an' tunnels aw ower the'opper.
+Did ar ever tell thee abite them two brothers wot dug a tunnel inter th'side o' a bonk?
+Th'seym o' coal wonna much moer than a foot thick, but it was a bit o' good stuff.
+Theyse brothers 'ad a box on some runners with a peyce o' rope tied ter eych end.
+One on 'em 'ud crawl inter th'ole with a candle, draggin' th'box after 'im.
+When ey'd filled th'box with coal, ey'd give a couple o' tugs on th'rope.
+Th'other brother pulled th'box ite an' emptied it, an' then signalled fer it bey pulled back aggen.
+But one dee when ey pulled th'box ite ther wonna any coal in it — ther was a bird's neyst in it with foer eggs!
+Ey stood theer scrattin' 'is yed an' gawpin' at this neyst.
+Ey couldna understand it but ey shyted dine th'ole: 'Dust want 'em fried or poached?'
+Wot dust think 'ad 'appened, sirree?
+This tunnel 'ad gone straight through th'bonk an' come ite on th'other side oa a bush!
+This nest was in th'bush.
+So, fer a laugh, ey'd popped it in th'box an' signalled 'is brother fer pull it ite.
+Tote th'end o' th'strike, aw theyse little pits 'ad fer bey filled in.
+Ther was a mon comin' fer inspect 'em at 12 o'clock on th'Satdee.
+Mind thee, a lot on 'em were drawin' coal 'till th'last minute.
+Two on 'em 'ad a shaft abite 20 foot deyp an' thee left it too leete fer fill th'ole in.
+So thee put some branches across top o' th'ole an' covered em with clods an' threw a bit o' dirt on top.
+This inspector-mon were bit suspicious abite this big pile o' dirt wot thee 'adna put back.
+When ey eksed 'em abite it one o' th'owd miners said: 'Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in.'`;
 
 export default jabez;
