@@ -15,7 +15,7 @@ export default function NavbarTop() {
                 <Navbar.Toggle />
                 <Navbar.Collapse className="justify-content-end">
                     <Navbar.Text>
-                        <a href="github.com">Github</a>
+                        <a href="https://github.com/adamstimb/potters-ipsum">Github</a>
                     </Navbar.Text>
                 </Navbar.Collapse>
             </Container>

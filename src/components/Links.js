@@ -16,7 +16,7 @@ export default function Links() {
             <a href="https://archiveshub.jisc.ac.uk/search/archives/3c4ec75e-dc1c-3117-aebc-ed5d3c307bc8">
                 Wilfred Bloor Collection on jisc
             </a><br />
-            <a href="https://github.com">
+            <a href="https://github.com/adamstimb/potters-ipsum">
                 Source code for this website on github
             </a><br />
             <a href="https://www.ironstoneinnovation.eu">
