@@ -1,25 +1,45 @@
-import logo from './logo.svg';
+import 'bootstrap/dist/css/bootstrap.min.css';
+import React, { Component } from 'react';
+import { Container } from 'react-bootstrap';
 import './App.css';
+import NavbarTop from './components/NavbarTop';
+import IpsumContainer from './components/IpsumContainer';
+import { generateText } from './components/generateText/generateText';
+import Abite from './components/Abite';
+import Links from './components/Links';
 
-function App() {
-  return (
-    <div className="App">
-      <header className="App-header">
-        <img src={logo} className="App-logo" alt="logo" />
-        <p>
-          Edit <code>src/App.js</code> and save to reload.
-        </p>
-        <a
-          className="App-link"
-          href="https://reactjs.org"
-          target="_blank"
-          rel="noopener noreferrer"
-        >
-          Learn React
-        </a>
-      </header>
-    </div>
-  );
+class App extends Component {
+
+	constructor() {
+		super();
+		this.state = {
+			text: generateText(3, 4, 7),
+			paragraphs: 3,
+			minSentences: 4,
+			maxSentences: 7
+		};
+	}
+
+	componentDidMount() {
+	}
+
+	render() {
+		return (
+			<Container className="justify-content-md-center">
+				<div className="container-fluid text-justified text-md-left">
+					<NavbarTop />
+					<IpsumContainer
+						text={this.state.text}
+						paragraphs={this.state.paragraphs}
+						minSentences={this.state.minSentences}
+						maxSentences={this.state.maxSentences}
+					/>
+					<Abite />
+					<Links />
+				</div >
+			</Container>
+		);
+	}
 }
 
 export default App;
