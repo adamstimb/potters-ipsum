@@ -256,6 +256,222 @@ Th'fost lad wot jumped 'ad fer try an' clear th'fost two backs an'land on th'thi
 If ey didna it meant as ther was ony one back left fer aw th'other threy lads fer jump on to.
 It was now joke 'avin' threy 'efty lads on thee back, an' aw on 'em fangin' 'owd on thee some-wheer so's thee wouldna fo' off.
 Thee 'ad fer stee theer withite touchin' th'grind 'till one on 'em 'ad kynted two, foer, six, eight, ten, bodger!
-Ar'll tell thee wot sirree, some o'th'lads weyn gotten nar-a-dees wouldna get inter ser much trouble if thee 'ad some o' th' stuffin' knocked ite on 'em with a two-three geemes o' peggy or bodger.`;
+Ar'll tell thee wot sirree, some o'th'lads weyn gotten nar-a-dees wouldna get inter ser much trouble if thee 'ad some o' th' stuffin' knocked ite on 'em with a two-three geemes o' peggy or bodger.
+Ar'll 'ave a luk at it nar an' aggen but ar dunna reckon ar con do it much 'arm.
+Bring us a stick o' rock back or a monkey up a stick.
+Ee! Anna thee neyce? Dust know wot thee remind me on, sirree? 
+Them owd magic-lantern shows wot wey used 'ave.
+Ther was a mon wot used give theyse lantern-lectures on a wik-neyght in th'Sundee Schoo'.
+Ey 'ad a greet big lantern — aw brass an' meeogony.
+'It run. off that theer 'cetylene gas — thee knowst, that stuff wot wey used 'ave in us bike lamps.
+Ony this mon.'ad a big gasometer thing wot stood on th'floer.
+Ar dunna reyghtly know wot sort o' contraption it was but ey used fil it with weyter an' put theyse big lumps o' carbide inseyd it.
+It didna 'afe stink!
+When ey'd lit th'burners in this lantern ey fastened a wheyte sheyt up on th'wo'. 
+Ey 'ad some sleydes with hymns on 'em an' wey'd 'ave a good sing fer start off with.
+Then ey'd put two or threy funny sleydes on fer us childer.
+Ar con remember one on 'em — it was an owd mon in bed with 'is mythe weyd oppen.
+Just nar ther come a mouse from under th'bed an' ran up th'bedclose an' across th'bed an' dine this owd mon's throat.
+Theyse meyce kept comin' from under th'bed — dozens on 'em — an' thee aw went inter 'is mythe.
+It was th'fost movin' picture a lot on us 'ad ever seyn an' wey thowght it was marvellous.
+After wey'd 'ad th'funny uns ey showedpictures o' foreign parts an' talked abite 'em.
+Thee were mostly abite missionaries.
+Sometarmes ey showed pictures abite th'eyils0' strong drink an ey'd 'ave us singin': "Dare to be a Daniel, dare to stand alone, dare to pass the public-house and take your money home.”
+Some. o' th'owder lads wot sat at th'back pleed tricks on this mon. 
+Ther was a rubber peype wot went from this gasometer ter th'lantern an' theyse lads used put ther feyt on it an' squeyze it.
+Th'leyght 'ud start goin' ite an' th'mon 'ad keyp turnin' th'gas up.
+Just when ey'd got it reyght theyse' lads lifted ther feyt off th'peyp an' th'flame shot up reyght through th'top o' th'owd lantern. 
+It's a wonder ey didna set th'place afire.
+One neyght th'leyght went ite awgether, an' then ther was an awmighty bang.
+Panic set in, an' th'folks started meekin' fer th'doer an' foin' ower one another.
+Th'pleece was as dark as a bag 'cos aw th'paraffin lamps 'ad bin turned ite.
+Anyroad up, somebody 'ad 'th'nowce fer kindle one o' theyse lamps an' thee funt this lantern-mon lukkin' larke a drynded rat.
+Aw th'weyter 'ad bin blown ite o' 'is gasworks an', be th' luk on 'im, most on it ad 'gone aw ower 'im.
+Ar dunna know whether them lads at th'back 'ad owt do with it but it was a long wheyle afoer ey come aggen.'.
+Thee wouldstna remember me cousin Amos, wouldst?
+Ey lives at Congerton nar.
+Ey was ower this road awheyle back an' wey 'ad a reyght good natter abite th'owd dees.
+Ey lived next doer ey was a lad.
+Me granmother on me feyther's side lived with us at that tarme.
+'Er was a bit of a strait-laced un was me granmother an' 'er an' Amos didna 'it it off aw that well.
+'Er reckoned ey'd bin spoilt in th'rearin', but ar dunna think ey was that bad.
+But ey was one o' them lads wot couldna keyp 'is fingers ite o' things, 'specially things wot'd gotten 'oles in 'em.
+An' it wonna ony 'is fingers eether.
+If ey seyd a 'ole ey 'ad fer put 'is finger in it, or 'is arm, or 'is yed if it were a big 'ole. 
+Got 'is finger fast in a knot-'ole in th'closet doer awmost afoer ey could walk, an' th'fost dee at schoo' ey got 'is 'and stuck dine a grid in th'plee-grind.
+It seymed as if ey couldna resist 'oles.
+Funny thing, wonna it?
+Ey used get fast in aw sorts o'things, an' ey 'ad many a good thrashin' fer it.
+Most tarmes thee were able fer get 'im unstuck, but tweyce thee 'ad fer tak 'im up th'Infirmry — once on 'accynt o' 'im 'avin' 'is finger stuck up a peyce o' iron-pipin', an' once with 'is 'and in an owd stone pittle-jar.
+'Is mother was fer takkin' 'im ter th'blacksmith fer 'ave this iron-pipin' sawed off 'is finger but Amos wonna 'avin' any. 
+Ey could remember goin' theer once befoer fer 'ave a soce-pan tu off 'is yed.
+Ey'd got this soce-pan fast when ey was pleein' sowjers in it dine th'feylds.
+Somebody 'appened 'it 'im top o' th'yed an' it stuck fast.
+When thee tuk 'im ter th'blacksmith fer get this soce-pan off ey picked up is big 'ommer an' said: 'Just put thee yed dine on th'anvil, lad.'
+Ey didna meyn it thee knowst, but it put Amos off blacksmiths.
+So 'is mother 'ad fer walk Silverdeele with 'im an' tak 'im on th'tram ter 'artshill.
+Thee didna 'ave much trouble gettin' 'is finger ite 'o th' iron-pipin' but th'stone pittle-jar caused a bit o' bother.
+Ey 'adna towd 'is mother wot was in this pittle-jar.
+When thee brok it oppen at th'Infirmary ite pops a snake.
+Th'nosses squeyled an' skidaddled but it was only a gress-snake an' Amos stuffed it in 'is pocket.
+But 'is mother wouldna sit at th'side on 'im on th'tram comin' back — 'er couldna abide snakes.
+But it wonna lung afoer it was Amos's turn fer do a bit 0' squeylin'.
+At that tarme me granmother kept some leyches in a jar in th'pantry. 
+'Er used luk after bad folk in th'village an' 'er was a big beleyver in lettin' a bit o' blood ite.
+Whenever ey spied 'is chance, Amos 'ud go an' wetch theyse leyches in th''pantry.
+Ar knew fer certin as sooner or leeter ey'd put 'is 'and in th'jar — an' ey 'did.
+Ey didna get 'is 'and fast this tarme but one o' th'leyches fastened on ter 'im.
+They shouldsta 'eerd 'im — ey squeyled blue- murder.
+A bit touchy abite blood was Amos.
+Ey come runnin' inter th'kitchin screymin' at me gran- mother fer get it off 'im.
+But 'er wonna in aw that big a 'urry fer tak it off.
+Er said: 'Ee, that un's got a good 'owd on thee. Ar reckon theyt goin' tell me thee didstna put thee 'and in th'jar — it just jumped up an' bit thee.'
+Then 'er said: 'Dunna bey such a mard babby - it'll drop off thee when it's 'ad its fil.'
+But that meede 'im ten tarmes woss.
+In th'end 'er 'ad fer go an' cut a lump o' sawt off th'block fer get this leych off 'im.
+But it didna larn 'im — it wonna moer than a wik or two afoer thee funt 'im with is yed stuck in th'razzervoy reelins.
+Poer owd Amos!
+Ar anna asleyp if that's wot theet thinkin'.
+Ar con tell thee footstep anywheer.
+They walkst just larke thee feyther used do - a bit 'eavy on th'keggy foot.Come in an' sit thee dine.
+It's bin a puthery sort o' dee, anna it?
+Ar reckon wey shan 'ave some thunder afoer lung.
+Wey shan get it sooner than ar thowght.
+Thee mitst as well stop wheer thee at 'til it's past ower.
+In th'owd dees me mother 'ud bey goin' rind th'ice coverin' up aw th'mirrors, puttin' aw th'kneyves an' fokes an' spoons awee, drawin' th'blinds dine, an' oppenin' th'doers. 
+Folks used think as if th'leyghtnin' come dine th'chimney it'd go ite through th'doer withite doin' any mischief.
+When ar was a lad me mother used tell me if ever ar got caught in a thunder-storm th'best thing fer do was go ter th' middle o' a feyld an' lee dine on th'grind.
+Ar thowght abite 'er a two-three yeer back when ar got owertakken be a storm dine in th'valley yonder.
+But theedst luk such a foo' lyin' dine on th'grind in th' pourin' reen, wutstna?
+So ar meede tracks fer wom.
+Ar 'adna gone moer than a cockstride afoer ther was'a awmighty' crack.
+Th'leyghtnin' 'ad struck a oak trey just up th'road.
+It tuk a strip o'wood ite o' this trey from th'topmost twig ter th'grind. 
+Kilt it stone jed, it did!
+Ar thowght ter mesel': Jabez lad, they shouldsta done wot thee mother towd thee. If theydst bin a bit aimer tote that trey theydsta bin split reyght dine th'middle! So its dine on th'grind fer Jabez next tarme, choose wot folks think.
+Theedst 'ardly beleyve it but owd Charlie wot used live in th'wheyte-weshed cottage at th bottom o' th'leene woulda slept through that thunder weyn just 'eerd.
+A terrible 'eavy sleyper was owd Charlie - ey seymed fer go jed.
+Dust know, sirree, 'is missus peepered th'bedroom one dee with owd Charlie asleyp in th'bed.
+Ey was on neyghts at th'pit at th'tarme, but 'er was determined fer get this new peeper on th' wo' wheylst th'childer were at schoo'.
+An' 'er did it an' aw.
+'Er shunted th'furniture rind, an' th'bed an' aw, an' ey never 'eerd a thing.
+Ey wok up when 'er was puttin' th'last peyce on.
+When ey went sleyp th'wo's 'ad gotten autumn leyves on 'em, but when ey wok up thee were covered in roses.
+Ey rubbed 'is eyes an lukked arind 'im an' said ter 'is missus: "Well, ar'll bey jiggered. Thers now wonder ar feyl 'ungry — ar've gone an' slept reyght through th'flippin' winter.”
+Ar've gotten another spade in th'shed if thee't short o' ajob.
+A bit o' diggin' 'ud do thee a world o' good.
+They't puttin' a fair bit o' fat on thee bones just leetly.
+Come on in, ar want show thee summat.
+Wot dust meeke o' that then?
+Ar musta dug a dozen or moer o' them up in me tarme.
+Belonged ter me sister them did.
+Yer could buy them little dolls fer a penny or twopence.
+Th'bodies were meede ite o' a peyce o' rag stuffed with sawdust.
+This rag was poer stuff an' it wonna lung afoer it bosted.
+Me sister used pretend theyse dolls were bad when th'saw-dust started comin' ite.
+'Er'd keyp stitchin' 'em up but thee soon bosted ite aggen.
+When er couldna stitch 'em up anymoer 'er'd pretend thee were jed an' bury 'em in th'gardin.
+Er musta spent many a lot o' Satdee pennies on theyse dolls - ar keyp comin' across 'em aw ower th'opper.
+Just 'ark at yon youth.
+Ey thinks ar do this diggin' fer 'is benefit - ey's bin follerin' me arind aw mornin'.
+Owd thee whip a bit me owd friend — ar'm just 'avin' five.
+Talkin' abite diggin' things up, 'ast ever noticed wot a lot o' owd clee-pipes ther is in th'feylds arind th'village?
+They 'ave a luk in any o' th'feylds just after theen bin ploughed. In spittin' distance thee cost pick up a 'andful.o' peyces o' clee-pipe. A lot on 'em anna bin smoked eether - cleyn as a whistle thee are.
+Ar've offen wondered if somebody in th'village didna meeke clee-pipes at one tarme.
+Did ar ever tell thee abite th'fost smoke ar 'ad in a clee-pipe?
+Ar'd bey in me teyns at th'tarme an' ar come across Big Jim wot used work at th'bottom farm.
+Ey was ploughin' that feyld back o' th'Chapel an' ey'd got dine under th'edge fer a bite o'snappin'.
+When ey'd finished 'is bread an' cheyse ey cut a bit o' thick-twist an' put it on top o' th'dottle in 'is owd clee-pipe an' lit up.
+It smelt grand!
+This clee-pipe 'ad burnt ter th'colour o' meersham.
+Th'stem was ony abite a couple o' inches lung, an' th'bowl were just under 'is nose.
+Ar'd smoked many a lot o'dreyd leyves in a acorn pipe with a peyce o' straw stuck in it, but ar'd never smoked any reyl bacca.
+Ar eksed 'im if it teested as good as it smelt, an' ey said. "Thers nowt larke findin' things 'ite fer theesel'", an' ey give me 'ispipe.
+Ar didna 'afe fancy mesel' with this clee-pipe but it wonna lung afoer ar began feyl a bit funny.
+Big Jim said: "Wot's up me owd cock-sparrer? Theyt lukkin' a bit greyn arind th'gills."
+Just nar owd Big Jim started goin' rind an' rind, an' then th'osses started goin' rind an' rind, an' then Big Jim an' th'osses aw started goin' rind th'Chapel.
+Ee! ar did feyl bad sirree.
+Ar managed fer get on me feyt an' stagger ter th'geete but th'geete wouldna stand still eether.
+Then aw of a sudden th'grind come up an' 'it me.
+Ar dunna remember much after that but ar've never fancied a clee-pipe since.
+Didst 'ave gas or cocaine?
+Ar meyn when thee 'adst thee 'air cut.
+Ar reckon it musta bin reyght peenful fer 'ave them two-three 'airs o' thine cut as short as that.
+It's a wonder ter mey as that barber con give thee thee money's woth withite meekin' thee as bawd as an egg!
+Ey dunna charge thee full price, does he?
+At one tarme ther used bey an owd collier in th'village wot did a bit 0' 'air-cuttin' an' sheevin'.
+Ar dunna reyghtly remember if it was a penny or tuppence fer a 'aircut but it was one o' th'two.
+Us lads 'ad fer go on a Satdee mornin'.
+Ar tried fer get ite o' goin' if ar could, 'cos ther were a lot moer interestin' things fer a lad fer do on a Satdee mornin' than 'avin' 'is 'air cut.
+Ey did this 'air-cuttin' an' sheevin' in th'kitchin.
+Ey used put a cushin on one o' th'kitchin cheers fer us lads an' thee 'adst er kneyl on this cushin an' lee owd o' th'back o' th'cheer.
+Ey awwees 'ad a canary in a keege 'angin' up on th'wo' an' thee 'adst keyp lukkin' at this canary so's theedst keyp thee yed still.
+Ar dunna think ey'd larned any barberin' anywheer — ar reckon ey'd picked it up as ey went alung.
+Mind thee, considerin' ey were moer used ter 'andlin' a pick an' shovel than a comb an' scissors, ey didna do aw that bad a job.
+Thee lukst a bit larke a shorn lamb when ey'd finished with thee but it lasted thee a lung wheyle.
+Ar never walk up this road withite thinkin' abite th'tarme ar went bilberrin' with me Uncle Danny.
+Ey'd 'eerd tell as ther was a good crop o' bilberries in a wood t'other side o' Keyle.
+It was one 'olidee tarme just afoer ar left schoo', an' ey tuk me with 'im. 
+It's a back-breekin' job bilberrin' is, inna it?
+A lot o' folks musta 'eerd abite theyse bilberries though, 'cos be th' tarme wey got theer th'bushes 'ad bin welly stripped.
+Wey were in that wood practically aw dee an' wey ony got abite a couple o' pynd apeyce. 
+Anyroad, wey were just comin' back through Keyle when this bloke stops us an' says in a lah-di- dah sort o' voice: "Where did you get those bilberries from ?"
+Uncle Danny lukked this bloke up an' dine, an' ey didna seym fer tak to 'im 'cos ey said: "Wot's it got do with they wheer weyn 'ad 'em from? They mind thee own business."
+Ar thowght Uncle Danny were beyin' abit sharp with this bloke 'cos ey lukked a deycent enough soul.
+Thee couldst tell ey 'adna bin born in theyse parts though be th'funny road ey spok.
+But ey musta cottoned-on as ey wonna goin' get very fer with Uncle Danny, so ey spok ter mey.
+Ey wanted know if ar'd sel 'im mebilberries - ey said ey'd give mey a shillin' fer 'em.
+Ar thowght abite aw th'things ar could do with a bob, an' wheylst ar was thinkin' abite it this mon said: "Where did you say you got them from?"
+Ar were just goin' fer tell 'im when Uncle Danny tipped me th'wink fer keep me trap shut.
+This bloke kept rattlin' th'money in 'is pocket an' eksin' me wheer weyd bin.
+Ar didna know wot fer do — ar coulda bought now end o' things with a bob in them dees.
+An' then ar thowght abite th'teeste o' that bilberry pie wot me mother 'ud meeke, an' then me mythe started weyterin when ar thowght abite that bilberry an' apple dumplin' ar was goin 'ave.
+In th'end me bally won th'dee — ar said ar wonna goin' sell 'em.
+When wey'd gotten ite o' ear-shot Uncle Danny said: "Ee! they 'adst me on tenterhooks fer a wheyle, lad. Dust know who that bloke was? Ey bought that bilberry-wood a two-three yeer back wot weyn just trampled aw ower. If theydst towd 'im wheer theedst bin ey'd 'ad us in court next wik. An' thee dunna 'ave a bilberry pie in gaol thee knowst — only bread an' weyter".
+Ar could wreyte a book abite th'dogs weyn 'ad in this village.
+Ar reckon thers as much difference betweyn dogs as ther is betweyn folks.
+Thers good uns an' bad uns, an' thers clever uns an' mad uns,
+Thers them thee cost trust with thee leyfe, an' thers them thee costna trust any further than thee cost spit.
+But th'queerest dog weyn ever 'ad in th'village was one neemed Turk.
+Funny neeme fer a dog, wonna it?
+Ey was wot ar caw a liquoreece dog.
+Ey was aw sorts — a bit o' this an' a bit o' that an' a bit 'o' everythin' else.
+Th'dog was 'armless enough but ey didna 'afe luk funny.
+An' th'funniest thing abite 'im was ey walked sideroads. 
+'Is back-end didna foller 'is front-end — if thee seyst wot ar meyn.
+Folks reckoned ey'd bin sut on when ey was a pup an' ey'd sort o' got twisted rind a bit.
+Ey lived ter a good age though, an' ey didna seym fer mind folks laughin' at 'im.
+An' then ther was one neemed Rex.
+Ey was a different kettle o' fish awgether.
+Ey was one o' th'best-lukkin' collies ar've ever seyn — ey was a beauty.
+Yer felt as though yer just 'ad fer stroke 'im an' pat 'im, an' tel 'im wot a grand-lukkin' dog ey was.
+But that's when folks funt ite wot a grand set o' teyth ey'd gotten.
+Ey couldna bear anybody touch 'is yed.
+Theydst ony got pat 'is yed an' ey'd 'ave thee 'and in 'is mythe up ter thee elber.
+Then ther was that big black un wot thee cawed Prince. 
+'Ast ever nowticed as some dogs seym fer 'ave a grudge aggenst certin folks?
+This dog belonged a widder-woman wot lived with a married doter.
+Th'doter's 'usband was a sowjer so thee didna sey much on 'im, an' th'dog were company fer em.
+Ey was a good dog but ther was one or two folks wot ey couldna stand th'seyght on.
+One o' th'folks ey 'ad a grudge aggenst was a relative o' theyse women — a mon neemed Frank.
+Ey lived dine th'other end o' th'village an' ey used 'elp 'em with th'gardin an' suchlarke.
+But whenever ey come ter th'ice theyse women 'ad fasten th'dog up somewheer.
+Ey'da etten Franky if ey'd gotten at 'im.
+Dust know, that dog could tell as soon as Franky lifted th'latch on th'geete.
+Uncanny it was.
+Franky 'adna got put 'is foot on th'path afoer th'dog 'ud bey barkin' an' growlin' behind th'doer.
+Anyroad, one mornin', when theyse women got up owd Prince seymed fer bey poerly.
+Ey was under th'big chest o' drawers in th'kitchin an' ey wouldna come ite.
+Thee tried ticin 'im ite with aw sorts o' titbits but it was now good.
+Tote dinner-tarme thee began fer get worried abite 'im, an' when th'doter got dine on th'floer fer 'ave a luk under this chest o' drawers, 'er started blartin'.
+Er said ey was as cowd as ice an' ey musta gone jed in th'neyght.
+So thee both started blartin' an' then th'doter said 'er'd better go an' get Franky fer 'elp 'em shift th'drawers an bury poer owd Prince in th'gardin.
+Franky wonna in at th'tarme but 'is missus said 'er'd send 'im across as soon as ey come wom.
+So theyse two women sat comfortin' one another an' talkin' abite wot a good dog ey'd bin.
+Thee said thee'd get another pup as soon as thee could fer tak ther minds off it.
+An' then aw of a suddin Prince shot ite from under th' chest 0' drawers larke a rocket, an' was barkin' an' growlin' at th'doer.
+It could ony meyn one thing - ey'd 'eerd Franky comin' fer bury 'im.
+Theyse women couldna beleyve ther eyes, an' thee never did manage fer convince Franky as thee 'adna bin 'avin' 'im on.
+`;
 
 export default jabez;
