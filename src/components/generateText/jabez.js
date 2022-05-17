@@ -33,14 +33,14 @@ Ar remember takkin' a message fer a woman wot was a bit of skin-flint.
 Ar was ony a bit of a lad an' it was gettin' on fer threy miles theer an' back.
 On th'road wom ar was wonderin' if 'er'd give me a penny or twopence, an' are was plannin' wot ar'd buy with it.
 In me mind's eye ar spent that money ower an' ower aggen.
-Anyroad, when are got back 'er said: 'Ar'll give thee summat next tarme ar sey thee - ar anna got any cheenge.'
+Anyroad, when are got back 'er said: "Ar'll give thee summat next tarme ar sey thee - ar anna got any cheenge."
 For prove it 'er tuk a ten-bob note ite o' 'er poss an' 'eld it up.
-But ar'd 'eerd th'chink o' oney when 'er oppened th'poss.
-Ar thowght: 'Jabez lad, 'er's coddin' thee.  'Er's fer doin' thee ite o' thee money.'
-So ar said: 'That's awreyght, ar'll get it cheenged fer yer,' an' ar snatched th'note ite o' 'er and an' went beltin' fer th'shop.
+But ar'd 'eerd th'chink o' money when 'er oppened th'poss.
+Ar thowght: "Jabez lad, 'er's coddin' thee.  'Er's fer doin' thee ite o' thee money."
+So ar said: "That's awreyght, ar'll get it cheenged fer yer" an' ar snatched th'note ite o' 'er and an' went beltin' fer th'shop.
 Ar towd th'shop-woman ar didna want any coppers in th'cheenge - just silver.
 Ar thowght ter messel' 'er'll 'ave give me a tanner nar, an' it sarves 'er reyght fer tryin' diddle me.
-But bless mey, when ar tuk th'cheenge back 'er said: 'Wost dust think Jabez?  Ar've funt a penny lyin' abite wot ar didna know ar'd gotten.'
+But bless mey, when ar tuk th'cheenge back 'er said: "Wost dust think Jabez?  Ar've funt a penny lyin' abite wot ar didna know ar'd gotten."
 Ar reckon them folks wot cawed 'er a skin-flint wonner fer ite.
 Talkin' abite sendin' messages, thee wouldstna remember Pollymary wouldst?
 'Er 'ad a sister wot lived in a little cottage in th'bottom o' th'valley.
@@ -48,12 +48,12 @@ Gettin' on fer 'afe a mile awee it was.
 Pollymary used shyte messages to 'er.
 It dunna seym possible does it?
 But 'er 'ad a reyght good pair o' lungs an' 'er voice travlled well dine that valley.
-'Er used come ter th'top o' th'bonk an' cup 'er 'ands rind 'er mythe an' shyte 'Coo-ee. Coo-ee.'
+'Er used come ter th'top o' th'bonk an' cup 'er 'ands rind 'er mythe an' shyte "Coo-ee. Coo-ee."
 Just nar 'er sister 'ud come ter th'doer an' thee'd bey shytin' ter one another fer many a wheyle.
 But wey pleed a trick on 'er one dee.
 Ther were two on us pleein' in th'gorse-bushes 'afe-wee dine th'feylds when Pollymary come fer 'ave a shyte ter 'er sister.
-Th'sister's 'usband musta bin poerly, 'cos Pollymary shyted: 'Is Billy any better?'
-Wey got behin th'bushes an' imitated th'sister's voice an shyted up: 'Billy's jed.'
+Th'sister's 'usband musta bin poerly, 'cos Pollymary shyted: "Is Billy any better?"
+Wey got behin th'bushes an' imitated th'sister's voice an shyted up: "Billy's jed."
 Wey didna think 'er'd bey takken in as easy as that, but 'er was.
 'Er come runnin' dine th'feylds an' wey expected 'er go neck an' crop any minute.
 'Er 'ad fer 'ave a bacca at th'second stile - th'owd lass was blowin' larke brokken-winded 'oss.
@@ -117,13 +117,13 @@ Ar was that famished ar 'ad me kneyfe an' foke at th'ready afoer owd Daniel 'ad 
 Ar didna 'ear much o' 'is sermon in th'afternoon - ar was full ter bostin' an' ar think ar musta dozed off.
 Th'farmer's weyfe thowght ther was summat up with me.
 Owd Daniel did it justice though, an' ey give 'em a good threy-quarters of an 'our sermon at neyght.
-Dust know, ar con still remember 'is text — it was ite o' the' Owd Testament: 'Thou shalt not wholly reap the corners of thy fields, neither shalt thou gather the gleanings of thy harvest — thou shalt leave them for the poor and the stranger.'
+Dust know, ar con still remember 'is text — it was ite o' the' Owd Testament: "Thou shalt not wholly reap the corners of thy fields, neither shalt thou gather the gleanings of thy harvest — thou shalt leave them for the poor and the stranger."
 Th'farmer would 'ave us goin' back ter th'farm fer some supper.
 Theyse farmers dunna 'afe get through some snappin'!
 Wey 'ad cheyse, pittled damsons an' wom-beeked bread.
 It was dark be this tarme an' wey'd got a couple o' 'ours walkin' fer do.
 Anyroad, th'farmer said ey'd get th'pony an' trap ite fer tak us dine th'leene as fer as th'meen road.
-Ar thowght th'farmer 'ud bey comin' with us, but ey said: 'When 'ee get ter th'meen road just turn th'pony rind an' start 'im back wom - ey'll bey awreyght.'
+Ar thowght th'farmer 'ud bey comin' with us, but ey said: "When 'ee get ter th'meen road just turn th'pony rind an' start 'im back wom - ey'll bey awreyght."
 Wey stood an' listened fer a bit ter th'pony trottin' back up th'leene an' then owd Daniel struck off across th'feylds aggen.
 Th'owd feller 'ad got bey up at 5 o'clock in th'mornin' fer go dine th'pit.
 Ar reckon somebody ought ter 'ave given 'im a medal.
@@ -148,7 +148,7 @@ Mind thee, a lot on 'em were drawin' coal 'till th'last minute.
 Two on 'em 'ad a shaft abite 20 foot deyp an' thee left it too leete fer fill th'ole in.
 So thee put some branches across top o' th'ole an' covered em with clods an' threw a bit o' dirt on top.
 This inspector-mon were bit suspicious abite this big pile o' dirt wot thee 'adna put back.
-When ey eksed 'em abite it one o' th'owd miners said: 'Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in.'
+When ey eksed 'em abite it one o' th'owd miners said: "Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in."
 When theedst gotten a couple o' two-gallon buckets o' couldst manage.
 Mind thee, ar awwees reckoned as two buckets on a 'oop were better than maulin' with 'em one at a tarme — thee wast moer balanced, larke.
 But it didna 'afe give thee fingers wot fer on a cowd winter's mornin'!
@@ -176,23 +176,23 @@ Thee used reen-weyter or pond-weyter fer most everythin' else.
 Ar'll tell thee wot sirree, nar weyn aw gotten taps in th'ice ar never grumble abite peein' me weyter rate.
 Tt's a wonder ter mey as some o' them colliers didna 'ave ther 'ises burnt dine with aw them close rind th'fire.
 Mind thee, one or two on 'em neyly managed it.
-Ar remember one on 'em tellin' me abite th'tarme when 'is missus wok up in th'middle o' th'neyght an' said: 'Weeke up Tum ar can smell burnin'.'
-Ey towd 'er get of sleyp with 'er, but 'er wouldna rest
+Ar remember one on 'em tellin' me abite th'tarme when 'is missus wok up in th'middle o' th'neyght an' said: "Weeke up Tum ar can smell burnin'."
+Ey towd 'er get of sleyp with 'er, but 'er wouldna rest.
 Er werritted that much ey 'ad fer get up.
 When ey oppened th'stair-foot doer th'kitchen was full o' smoke!
-Ey shyted: 'Nell! Theyst better come dine - me trysers are on fire.'
-Er said: 'Oh my lors, Costna dite 'em?'
-Tum shyted back: 'Ar've dited em but ar shanna bey eeble go work in 'em — thers oles in th'legs big enough get thee yed through.'
+Ey shyted: "Nell! Theyst better come dine - me trysers are on fire."
+Er said: "Oh my lors, Costna dite 'em?"
+Tum shyted back: "Ar've dited em but ar shanna bey eeble go work in 'em — thers oles in th'legs big enough get thee yed through."
 When 'er come dine 'er said ey 'adna got an moer fer go in.
 Ther was ony 'is best blue an' 'is flannels, an' 'er wonner lettin' 'im go in them.
 So 'er funt a peyce o' cloth ite 'o th'rag-bag an' petched 'em fer 'im.
-Then 'er said: 'Them'll 'ave do. Ar conna sey wot ar'm doin' withite me glasses an' ar'm blessed if ar con think wheer ar've put 'em. Theyt 'ave manage with 'em 'till ar con get thee a' pair o' mowl-skins ite o' th'maxim.'
-So thee went back bed an' th'next thing 'er remembered was Tum shytin': 'Nell! Come dine quick. Ar'm in a reyght' mess — ar've lost th'use o' me leg!'
-'Er said: 'Theyst wot? Wotever's up with thee nar?'
-So ey shyted back. 'Well, eether ar'm paralysed from the weest dine or else theyst meede'a reyght owd cobble' o' theyse trysers. Ar conna move.'
+Then 'er said: "Them'll 'ave do. Ar conna sey wot ar'm doin' withite me glasses an' ar'm blessed if ar con think wheer ar've put 'em. Theyt 'ave manage with 'em 'till ar con get thee a' pair o' mowl-skins ite o' th'maxim."
+So thee went back bed an' th'next thing 'er remembered was Tum shytin': "Nell! Come dine quick. Ar'm in a reyght' mess — ar've lost th'use o' me leg!"
+'Er said: "Theyst wot? Wotever's up with thee nar?"
+So ey shyted back. "Well, eether ar'm paralysed from the weest dine or else theyst meede'a reyght owd cobble' o' theyse trysers. Ar conna move."
 Dust know wot 'er'd done, sirree?
 Some road or other er'd stitched th'legs 'gether betweyn th'kneys.
-'Ee!' ey said.  'They 'adst me worried fer a bit. Next tarme thee mendest me trysers in th'middle o' th'neyght meeke sure fer put 'thee specs on. Ar was beginnin' fer think theydst 'ave push me work in th'wheyl-barrer.'
+"Ee!" ey said.  "They 'adst me worried fer a bit. Next tarme thee mendest me trysers in th'middle o' th'neyght meeke sure fer put 'thee specs on. Ar was beginnin' fer think theydst 'ave push me work in th'wheyl-barrer."
 Ar reckon every dog 'as its dee.
 At one tarme th'corn were awwees cut wi' a sickle or a scythe.
 Then th'reypin' macheynes come, an' then th'beynders, an' nar this greet lummockin' contraption.
@@ -262,7 +262,7 @@ Them owd magic-lantern shows wot wey used 'ave.
 Ther was a mon wot used give theyse lantern-lectures on a wik-neyght in th'Sundee Schoo'.
 Ey 'ad a greet big lantern — aw brass an' meeogony.
 'It run. off that theer 'cetylene gas — thee knowst, that stuff wot wey used 'ave in us bike lamps.
-Ony this mon.'ad a big gasometer thing wot stood on th'floer.
+Ony this mon 'ad a big gasometer thing wot stood on th'floer.
 Ar dunna reyghtly know wot sort o' contraption it was but ey used fil it with weyter an' put theyse big lumps o' carbide inseyd it.
 It didna 'afe stink!
 When ey'd lit th'burners in this lantern ey fastened a wheyte sheyt up on th'wo'. 
@@ -285,7 +285,7 @@ Panic set in, an' th'folks started meekin' fer th'doer an' foin' ower one anothe
 Th'pleece was as dark as a bag 'cos aw th'paraffin lamps 'ad bin turned ite.
 Anyroad up, somebody 'ad 'th'nowce fer kindle one o' theyse lamps an' thee funt this lantern-mon lukkin' larke a drynded rat.
 Aw th'weyter 'ad bin blown ite o' 'is gasworks an', be th' luk on 'im, most on it ad 'gone aw ower 'im.
-Ar dunna know whether them lads at th'back 'ad owt do with it but it was a long wheyle afoer ey come aggen.'.
+Ar dunna know whether them lads at th'back 'ad owt do with it but it was a long wheyle afoer ey come aggen'.
 Thee wouldstna remember me cousin Amos, wouldst?
 Ey lives at Congerton nar.
 Ey was ower this road awheyle back an' wey 'ad a reyght good natter abite th'owd dees.
@@ -305,7 +305,7 @@ Most tarmes thee were able fer get 'im unstuck, but tweyce thee 'ad fer tak 'im 
 Ey could remember goin' theer once befoer fer 'ave a soce-pan tu off 'is yed.
 Ey'd got this soce-pan fast when ey was pleein' sowjers in it dine th'feylds.
 Somebody 'appened 'it 'im top o' th'yed an' it stuck fast.
-When thee tuk 'im ter th'blacksmith fer get this soce-pan off ey picked up is big 'ommer an' said: 'Just put thee yed dine on th'anvil, lad.'
+When thee tuk 'im ter th'blacksmith fer get this soce-pan off ey picked up is big 'ommer an' said: "Just put thee yed dine on th'anvil, lad."
 Ey didna meyn it thee knowst, but it put Amos off blacksmiths.
 So 'is mother 'ad fer walk Silverdeele with 'im an' tak 'im on th'tram ter 'artshill.
 Thee didna 'ave much trouble gettin' 'is finger ite 'o th' iron-pipin' but th'stone pittle-jar caused a bit o' bother.
@@ -323,8 +323,8 @@ They shouldsta 'eerd 'im — ey squeyled blue- murder.
 A bit touchy abite blood was Amos.
 Ey come runnin' inter th'kitchin screymin' at me gran- mother fer get it off 'im.
 But 'er wonna in aw that big a 'urry fer tak it off.
-Er said: 'Ee, that un's got a good 'owd on thee. Ar reckon theyt goin' tell me thee didstna put thee 'and in th'jar — it just jumped up an' bit thee.'
-Then 'er said: 'Dunna bey such a mard babby - it'll drop off thee when it's 'ad its fil.'
+Er said: "Ee, that un's got a good 'owd on thee. Ar reckon theyt goin' tell me thee didstna put thee 'and in th'jar — it just jumped up an' bit thee."
+Then 'er said: "Dunna bey such a mard babby - it'll drop off thee when it's 'ad its fil."
 But that meede 'im ten tarmes woss.
 In th'end 'er 'ad fer go an' cut a lump o' sawt off th'block fer get this leych off 'im.
 But it didna larn 'im — it wonna moer than a wik or two afoer thee funt 'im with is yed stuck in th'razzervoy reelins.
