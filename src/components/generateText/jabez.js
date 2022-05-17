@@ -115,7 +115,7 @@ Ar've never seyn ser much stuff on a dinner-teeble eether befoer or since.
 Ther was enough fer feyd an army!
 Ar was that famished ar 'ad me kneyfe an' foke at th'ready afoer owd Daniel 'ad finished th'grace.
 Ar didna 'ear much o' 'is sermon in th'afternoon - ar was full ter bostin' an' ar think ar musta dozed off.
-y. Th'farmer's weyfe thowght ther was summat up with me.
+Th'farmer's weyfe thowght ther was summat up with me.
 Owd Daniel did it justice though, an' ey give 'em a good threy-quarters of an 'our sermon at neyght.
 Dust know, ar con still remember 'is text — it was ite o' the' Owd Testament: 'Thou shalt not wholly reap the corners of thy fields, neither shalt thou gather the gleanings of thy harvest — thou shalt leave them for the poor and the stranger.'
 Th'farmer would 'ave us goin' back ter th'farm fer some supper.
@@ -149,7 +149,6 @@ Two on 'em 'ad a shaft abite 20 foot deyp an' thee left it too leete fer fill th
 So thee put some branches across top o' th'ole an' covered em with clods an' threw a bit o' dirt on top.
 This inspector-mon were bit suspicious abite this big pile o' dirt wot thee 'adna put back.
 When ey eksed 'em abite it one o' th'owd miners said: 'Dunna worry theesel' abite that lad. It's just a bit wot wey 'ad left ower. Mey an' Charlie are goin' dig another 'ole fer put it in.'
-ter on th'end o' thee arms, theydst got abite as much as thee
 When theedst gotten a couple o' two-gallon buckets o' couldst manage.
 Mind thee, ar awwees reckoned as two buckets on a 'oop were better than maulin' with 'em one at a tarme — thee wast moer balanced, larke.
 But it didna 'afe give thee fingers wot fer on a cowd winter's mornin'!
@@ -194,7 +193,6 @@ So ey shyted back. 'Well, eether ar'm paralysed from the weest dine or else they
 Dust know wot 'er'd done, sirree?
 Some road or other er'd stitched th'legs 'gether betweyn th'kneys.
 'Ee!' ey said.  'They 'adst me worried fer a bit. Next tarme thee mendest me trysers in th'middle o' th'neyght meeke sure fer put 'thee specs on. Ar was beginnin' fer think theydst 'ave push me work in th'wheyl-barrer.'
-id as we watched one of the early combine-harvesters at work.
 Ar reckon every dog 'as its dee.
 At one tarme th'corn were awwees cut wi' a sickle or a scythe.
 Then th'reypin' macheynes come, an' then th'beynders, an' nar this greet lummockin' contraption.
