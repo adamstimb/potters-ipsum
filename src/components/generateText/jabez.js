@@ -471,7 +471,6 @@ So theyse two women sat comfortin' one another an' talkin' abite wot a good dog 
 Thee said thee'd get another pup as soon as thee could fer tak ther minds off it.
 An' then aw of a suddin Prince shot ite from under th' chest 0' drawers larke a rocket, an' was barkin' an' growlin' at th'doer.
 It could ony meyn one thing - ey'd 'eerd Franky comin' fer bury 'im.
-Theyse women couldna beleyve ther eyes, an' thee never did manage fer convince Franky as thee 'adna bin 'avin' 'im on.
-`;
+Theyse women couldna beleyve ther eyes, an' thee never did manage fer convince Franky as thee 'adna bin 'avin' 'im on.`;
 
 export default jabez;
