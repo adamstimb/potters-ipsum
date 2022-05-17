@@ -125,7 +125,7 @@ It was dark be this tarme an' wey'd got a couple o' 'ours walkin' fer do.
 Anyroad, th'farmer said ey'd get th'pony an' trap ite fer tak us dine th'leene as fer as th'meen road.
 Ar thowght th'farmer 'ud bey comin' with us, but ey said: 'When 'ee get ter th'meen road just turn th'pony rind an' start 'im back wom - ey'll bey awreyght.'
 Wey stood an' listened fer a bit ter th'pony trottin' back up th'leene an' then owd Daniel struck off across th'feylds aggen.
-Th'owd feller 'ad got bey up at 5 0'clock in th'mornin' fer go dine th'pit.
+Th'owd feller 'ad got bey up at 5 o'clock in th'mornin' fer go dine th'pit.
 Ar reckon somebody ought ter 'ave given 'im a medal.
 Come fer think on it though, p'raps SOMEBODY did!
 Ther were little pits an' tunnels aw ower the'opper.
@@ -167,7 +167,7 @@ Thee 'adst fer drop thee bucket in gentle so's thee didstna churn up th'muck at 
 Then thee givst th'rope a flick so's th'bucket tipped ower on its side.
 Some o' theyse wells were a good depth, an' thee wonna cleyned aw that offen.
 Theydst bey surprised at some o' th' things wot were funt dine 'em.
-Owd 'ats an' shoes, clee-pipes an' tins 0' bacca, wetches, lumps o' scrap-iron, an' nar an' aggen a bit o' money.
+Owd 'ats an' shoes, clee-pipes an' tins o' bacca, wetches, lumps o' scrap-iron, an' nar an' aggen a bit o' money.
 Course ther were awwees a bucket or two at th'bottom, an' a two-three lenths o' owd rope.
 Ar remember seyin' an owd wooden bucket wot 'ad come ite o' a well.
 It musta bin dine fer donkey's yeers but it 'ud still 'owd weyter.
@@ -276,7 +276,7 @@ Theyse meyce kept comin' from under th'bed — dozens on 'em — an' thee aw wen
 It was th'fost movin' picture a lot on us 'ad ever seyn an' wey thowght it was marvellous.
 After wey'd 'ad th'funny uns ey showedpictures o' foreign parts an' talked abite 'em.
 Thee were mostly abite missionaries.
-Sometarmes ey showed pictures abite th'eyils0' strong drink an ey'd 'ave us singin': "Dare to be a Daniel, dare to stand alone, dare to pass the public-house and take your money home.”
+Sometarmes ey showed pictures abite th'eyils o' strong drink an ey'd 'ave us singin': "Dare to be a Daniel, dare to stand alone, dare to pass the public-house and take your money home.”
 Some. o' th'owder lads wot sat at th'back pleed tricks on this mon. 
 Ther was a rubber peype wot went from this gasometer ter th'lantern an' theyse lads used put ther feyt on it an' squeyze it.
 Th'leyght 'ud start goin' ite an' th'mon 'ad keyp turnin' th'gas up.
@@ -315,7 +315,7 @@ Ey 'adna towd 'is mother wot was in this pittle-jar.
 When thee brok it oppen at th'Infirmary ite pops a snake.
 Th'nosses squeyled an' skidaddled but it was only a gress-snake an' Amos stuffed it in 'is pocket.
 But 'is mother wouldna sit at th'side on 'im on th'tram comin' back — 'er couldna abide snakes.
-But it wonna lung afoer it was Amos's turn fer do a bit 0' squeylin'.
+But it wonna lung afoer it was Amos's turn fer do a bit o' squeylin'.
 At that tarme me granmother kept some leyches in a jar in th'pantry. 
 'Er used luk after bad folk in th'village an' 'er was a big beleyver in lettin' a bit o' blood ite.
 Whenever ey spied 'is chance, Amos 'ud go an' wetch theyse leyches in th''pantry.
@@ -399,7 +399,7 @@ Ar meyn when thee 'adst thee 'air cut.
 Ar reckon it musta bin reyght peenful fer 'ave them two-three 'airs o' thine cut as short as that.
 It's a wonder ter mey as that barber con give thee thee money's woth withite meekin' thee as bawd as an egg!
 Ey dunna charge thee full price, does he?
-At one tarme ther used bey an owd collier in th'village wot did a bit 0' 'air-cuttin' an' sheevin'.
+At one tarme ther used bey an owd collier in th'village wot did a bit o' 'air-cuttin' an' sheevin'.
 Ar dunna reyghtly remember if it was a penny or tuppence fer a 'aircut but it was one o' th'two.
 Us lads 'ad fer go on a Satdee mornin'.
 Ar tried fer get ite o' goin' if ar could, 'cos ther were a lot moer interestin' things fer a lad fer do on a Satdee mornin' than 'avin' 'is 'air cut.
@@ -469,7 +469,7 @@ So thee both started blartin' an' then th'doter said 'er'd better go an' get Fra
 Franky wonna in at th'tarme but 'is missus said 'er'd send 'im across as soon as ey come wom.
 So theyse two women sat comfortin' one another an' talkin' abite wot a good dog ey'd bin.
 Thee said thee'd get another pup as soon as thee could fer tak ther minds off it.
-An' then aw of a suddin Prince shot ite from under th' chest 0' drawers larke a rocket, an' was barkin' an' growlin' at th'doer.
+An' then aw of a suddin Prince shot ite from under th' chest o' drawers larke a rocket, an' was barkin' an' growlin' at th'doer.
 It could ony meyn one thing - ey'd 'eerd Franky comin' fer bury 'im.
 Theyse women couldna beleyve ther eyes, an' thee never did manage fer convince Franky as thee 'adna bin 'avin' 'im on.`;
 
