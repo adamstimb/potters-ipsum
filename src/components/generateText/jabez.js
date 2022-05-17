@@ -261,7 +261,7 @@ Ee! Anna thee neyce? Dust know wot thee remind me on, sirree?
 Them owd magic-lantern shows wot wey used 'ave.
 Ther was a mon wot used give theyse lantern-lectures on a wik-neyght in th'Sundee Schoo'.
 Ey 'ad a greet big lantern — aw brass an' meeogony.
-'It run. off that theer 'cetylene gas — thee knowst, that stuff wot wey used 'ave in us bike lamps.
+It run off that theer 'cetylene gas — thee knowst, that stuff wot wey used 'ave in us bike lamps.
 Ony this mon 'ad a big gasometer thing wot stood on th'floer.
 Ar dunna reyghtly know wot sort o' contraption it was but ey used fil it with weyter an' put theyse big lumps o' carbide inseyd it.
 It didna 'afe stink!
